@@ -10,8 +10,6 @@
 
 ### 💬 I’m looking to collaborate on projects related to financial analysis, fintech, or business intelligence.
 
-### 💬 Ask me about trips to the Galapagos islands, I will hook you up with a good deal
-
 ### 📫 How to reach me: LinkedIn: www.linkedin.com/in/cameron-james-wilson-herdoiza | Email: camjames2003@gmail.com
 
 
